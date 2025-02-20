@@ -1,1 +1,1 @@
-Bem Vindos ao NeuroMind!
+Bem Vindos ao NeuroMind!  :)
